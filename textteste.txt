@@ -1,0 +1,1 @@
+Marinheiro nunca morre afogado!
